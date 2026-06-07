@@ -4,7 +4,7 @@
 ### <p align="center">  [rentry](https://rentry.co/powsrentry) / [prns](https://en.pronouns.page/@powderkegg_) / [ata](https://powderkegg.atabook.org/)
 
 <p align="center">
-byi, im a freak and i make a lot of nasty jokes + im very direct and can be mean at times
+byi, im a freak and i make a lot of nasty jokes + im very direct and can be mean at times, also somtimes speak in 3rd person #cringe
 
 <p align="center">
 also, i HATE piltover (incl vi and viktor) so do not mention them 2 me or int with me if u like them
