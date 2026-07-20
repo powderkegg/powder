@@ -1,5 +1,5 @@
 
-# <p align="center"> [I HEART JINX !!!](https://guns.lol/powderkegg)  
+# <p align="center"> [POWDER!!!](https://guns.lol/powderkegg)  
 
 ### <p align="center">  [rentry](https://rentry.co/powsrentry) / [prns](https://en.pronouns.page/@powderkegg_) / [ata](https://powderkegg.atabook.org/)
 
