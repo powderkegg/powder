@@ -1,5 +1,5 @@
 
-# <p align="center"> [POWDER!!!](https://guns.lol/powderkegg)  
+# <p align="center"> [zombie slayyaaaaa](https://guns.lol/powderkegg)  
 
 ### <p align="center">  [rentry](https://rentry.co/powsrentry) / [prns](https://pronouns.cc/@powderkegg) / [ata](https://powderkegg.atabook.org/)
 
