@@ -1,4 +1,5 @@
 
+# <p align="center"> DO NOT FOLLOW ME IF UR A SPAM ACC PLS YALL ARE SO ANNOYING
 # <p align="center"> [zombie slayyaaaaa](https://guns.lol/powderkegg)  
 
 ### <p align="center">  [rentry](https://rentry.co/powsrentry) / [prns](https://pronouns.cc/@powderkegg) / [ata](https://powderkegg.atabook.org/)
